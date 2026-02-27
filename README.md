@@ -16,6 +16,8 @@
 
  ★ If I don't respond/INT, I am most likely offtab feel free to W2I **unless** stated otherwise or if another statement in my ponies name is contrary!
 
+★ ALSO I LOVE CUDDLES ON PT, So like- Please I beg you
+
 </details>
 
 ⋆｡˚ ☁︎ ˚｡⋆｡˚☽˚｡⋆
@@ -36,7 +38,7 @@
   
   <summary>☆Important!!☆</summary> 
 
-  ★ I may not respond, sometimes I prefer not to type!
+  ★ I may not respond, but I will INT! Sometimes I prefer not to type!
 
   ★ I am neurodivergent and sometimes don't understand social cues or just stuff in general, please me patient with me!
 
