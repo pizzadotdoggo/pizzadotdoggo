@@ -57,7 +57,6 @@
  ★ I am a **minor** do **not** under **any** circumstances be weird towards me **please**
 
 ★ DNC in my ponies names mean 'do not copy' so please don't, I work very hard on them ^^
-
 </details>
 
 
