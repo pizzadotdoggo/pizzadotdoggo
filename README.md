@@ -131,7 +131,7 @@ Stalkers ↴
 
 ★ I am Demiplatonic, Therefore it is more than likely that it will take me a while to warm up to people!!
 
-★ Apothisexual, Anything sexual can and will make me uncomfortable and I might even block said person who is acting that way, it is best not to even make flirty jokes towards me anyways unless I am close to you (AND ONLY IF IT IS PLATONIC AND MEANT JOKINGLY-)
+★ Apothisexual, **Anything** sexual can and will make me uncomfortable and I might even block said person who is acting that way, it is best not to even make flirty jokes towards me anyways unless I am close to you (AND ONLY IF IT IS PLATONIC AND MEANT JOKINGLY-)
 
 </details>
 
