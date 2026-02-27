@@ -55,6 +55,20 @@
 ⋆｡˚ ☁︎ ˚｡⋆｡˚☽˚｡⋆
 
 <details>
+
+  <summary>☆Characters I'm Associated With on Ponytown☆</summary> 
+
+★ Cream Puff (OC) *recent*
+
+★ Yarnaby (PPT) *old*
+
+★ Opila (GoBB) *old*
+
+</details>
+
+⋆｡˚ ☁︎ ˚｡⋆｡˚☽˚｡⋆
+
+<details>
   <summary>☆Fandoms☆</summary> 
  
   ★ Rise of The Teenage Mutant Ninja Turtles
