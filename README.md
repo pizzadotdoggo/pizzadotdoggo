@@ -7,6 +7,7 @@
   <summary>☆General☆</summary> 
  . ₊ ⊹ . ₊˖ . ₊
 
+
   ★ Playing Ponytown 24/7  
   
  ★ If you see me sitting with someone on pony town, It is most likely one of my close friends ^^ 
@@ -17,6 +18,7 @@
 <details>
   <summary>☆Aliases☆</summary> 
 . ₊ ⊹ . ₊˖ . ₊
+
  
   ★ Zephyr  
   
@@ -31,6 +33,7 @@
   
   <summary>☆Important!!☆</summary> 
 . ₊ ⊹ . ₊˖ . ₊
+
 
   ★ I may not respond, sometimes I prefer not to type!
 
