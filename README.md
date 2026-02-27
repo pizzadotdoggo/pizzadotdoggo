@@ -36,7 +36,6 @@
 
 <details>
 
-  
   <summary>☆Important!!☆</summary> 
 
   ★ I may not respond, but I will INT! Sometimes I prefer not to type!
@@ -83,6 +82,18 @@
   ★ Whatever Marcus The Worm/Sardine's Fandom Is
 
   **This is a W.I.P Segment, I most likely forgot some.**
+
+</details>
+
+<details>
+  <summary>☆DNI☆</summary> 
+ ★ Pedophiles
+ ★ Zoophiles
+ ★ Racists
+ ★ Anyone 18+ or NSFW
+ ★ Any Other harmful groups
+
+ ★ I am chill with almost anyone really, I don't mind people with Neopronouns, Xenopronouns, or Therians, Furries, Fictkins, etc. I am basically alright as long as you aren't harming anyone or promoting anything harmful :D★
 
 </details>
 
