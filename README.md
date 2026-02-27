@@ -118,6 +118,8 @@ Stalkers ↴
   ★ Arcane
   
   ★ Pokemon Horizons
+
+  ★ How to Train Your Dragon
   
   ★ Whatever Marcus The Worm/Sardine's Fandom Is
 
