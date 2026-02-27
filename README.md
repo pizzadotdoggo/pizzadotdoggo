@@ -26,6 +26,8 @@ Stalkers ↴
 
 ★ If ya wanna friend me on just ask! Because I have my friend reqs disabled. (I won't friend ppl I just met/haven't spent time with though!!)
 
+★ Also I'm super friendly I promise-
+
 </details>
 
 ⋆｡˚ ☁︎ ˚｡⋆｡˚☽˚｡⋆
