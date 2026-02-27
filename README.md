@@ -50,34 +50,14 @@
 
  <summary>☆Important!!☆</summary> 
 
-  ★ Rise of The Teenage Mutant Ninja Turtles
+  ★ I may not respond, but I will INT! Sometimes I prefer not to type!
 
-  ★ Wings of Fire
+  ★ I am neurodivergent and sometimes don't understand social cues or just stuff in general, please me patient with me!
 
-  ★ Five Nights at Freddy's
+ ★ I am a **minor** do **not** under **any** circumstances be weird towards me **please**
 
-  ★ Unwind
+★ DNC in my ponies names mean 'do not copy' so please don't, I work very hard on them ^^
 
-  ★ Magnus Chase
-
-  ★ Stranger Things
-
-  ★ The Amazing Digital Circus
-
-  ★ Murder Drones
-
-  ★ My Little Pony
-
-  ★ Little Nightmares
-
-  ★ Poppy Playtime
-
-  ★ Sweet Tooth
-
-  ★ Wobbledogs
-
-  ★ Whatever Marcus The Worm/Sardine's Fandom Is
-
-  **This is a W.I.P Segment, I most likely forgot some.**
 </details>
+
 
