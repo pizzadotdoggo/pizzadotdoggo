@@ -2,5 +2,8 @@
 
 <details>
   <summary>☆Aliases☆</summary>
-★I go by Zephyr but ya can also refer to me as Zellie!★
+☆Here are some I allow anyone to call me!☆
+
+★ Zephyr
+★ Zellie
 </details>
