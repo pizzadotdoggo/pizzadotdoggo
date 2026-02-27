@@ -89,9 +89,10 @@
 
 <details>
   <summary>☆DNI☆</summary> 
+ 
  ★ Pedophiles
 
-★ Zoophiles
+ ★ Zoophiles
  
  ★ Racists
 
