@@ -1,9 +1,8 @@
 ## WIP!!
 
 <details>
-  <summary>☆Aliases☆</summary>
-Here are some I allow anyone to call me:
- 
+  <summary>☆Aliases☆</summary> 
   ★ Zephyr  
-  ★ Zellie  
+  ★ Zellie 
+  ☆I have others, these are just the ones **anyone** can refer to me as!
 </details>
