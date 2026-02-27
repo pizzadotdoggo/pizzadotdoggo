@@ -22,15 +22,13 @@ Stalkers ↴
 
  ★ If I don't respond/INT on Ponytown I am most likely offtab feel free to W2I **unless** stated otherwise or if another statement in my ponies name is contrary!
 
-★ Also C+H if ya want (AS IN PLEASE DO-)
+★ Also C+H if ya want
 
 ★ If ya wanna friend me just ask! Because I have my friend reqs disabled. (I won't friend ppl I just met/haven't spent time with though!!)
 
 ★ Jack Stauber Addict 
 
 ★ My personality type is INTP!
-
-★ I'm super friendly I promise-
 
 </details>
 
