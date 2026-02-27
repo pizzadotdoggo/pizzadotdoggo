@@ -1,5 +1,9 @@
 ## WIP!!
 
+⋆｡°✩"Call me fighter, I'll mop the floor with you
+Call me lover, I'll take you for a drink or two
+You'll get older, and maybe then you'll feel some control"/Lyr✩°｡⋆
+
 Stalkers ↴
 
 <img src="https://views-counter.vercel.app/badge?pageId=pizzadotdoggo&leftColor=000000&rightColor=0adb3f&type=total&label=Viewers&style=none" alt="Views Counter">
