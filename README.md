@@ -14,7 +14,7 @@
  
  ★ I **love** stars!!
 
- ★ If I don't respond/INT, I am prolly offtab feel free to W2I **unless** stated otherwise or if another statement on my ponies name is contrary!
+ ★ If I don't respond/INT, I am most likely offtab feel free to W2I **unless** stated otherwise or if another statement in my ponies name is contrary!
 
 </details>
 
