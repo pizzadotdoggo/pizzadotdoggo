@@ -49,18 +49,40 @@
 
 </details>
 
+⋆｡˚ ☁︎ ˚｡⋆｡˚☽˚｡⋆
+
 <details>
   <summary>☆Fandoms☆</summary> 
  
-  ★ Playing Ponytown 24/7  
-  
- ★ If you see me sitting with someone on pony town, It is most likely one of my close friends ^^ 
- 
- ★ I **love** stars!!
+  ★ Rise of The Teenage Mutant Ninja Turtles
 
- ★ If I don't respond/INT, I am most likely offtab feel free to W2I **unless** stated otherwise or if another statement in my ponies name is contrary!
+  ★ Wings of Fire
 
-★ ALSO I LOVE CUDDLES ON PT, So like- Please I beg you
+  ★ Five Nights at Freddy's
+
+  ★ Unwind
+
+  ★ Magnus Chase
+
+  ★ Stranger Things
+
+  ★ The Amazing Digital Circus
+
+  ★ Murder Drones
+
+  ★ My Little Pony
+
+  ★ Little Nightmares
+
+  ★ Poppy Playtime
+
+  ★ Sweet Tooth
+
+  ★ Wobbledogs
+
+  ★ Whatever Marcus The Worm/Sardine's Fandom Is
+
+  **This is a W.I.P Segment, I most likely forgot some.**
 
 </details>
 
