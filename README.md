@@ -1,6 +1,6 @@
 ## WIP!!
 
-<sub><img src="https://views-counter.vercel.app/badge?pageId=pizzadotdoggo&leftColor=333333&rightColor=4d79ff&type=daily&label=Stalkers&style=none" alt="Views Counter">
+https://views-counter.vercel.app/badge?pageId=pizzadotdoggo&leftColor=000000&rightColor=0adb3f&type=total&label=Viewers&style=none
 
 <sub>*Words like ☆This☆ are clickable!*
 
