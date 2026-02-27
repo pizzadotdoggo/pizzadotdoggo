@@ -56,7 +56,7 @@
 
 <details>
 
-  <summary>☆Char's Associated With me on Ponytown☆</summary> 
+  <summary>☆Char's I'm Associated With on PT☆</summary> 
 
 ★ Aspen Buttons (oc) *recent*
 
