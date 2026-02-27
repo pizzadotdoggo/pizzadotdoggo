@@ -56,9 +56,15 @@
 
 <details>
 
-  <summary>☆Characters I'm Associated With on Ponytown☆</summary> 
+  <summary>☆Char's Associated With me on Ponytown☆</summary> 
+
+★ Aspen Buttons (oc) *recent*
+
+★ Farrah (oc) *recent*
 
 ★ Cream Puff (OC) *recent*
+
+★ Chances (OC) *old*
 
 ★ Yarnaby (PPT) *old*
 
