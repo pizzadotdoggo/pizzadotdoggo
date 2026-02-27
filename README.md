@@ -27,7 +27,7 @@
 
 <details>
   
-  <summary>_☆Important!!☆_</summary> 
+  <summary>☆Important!!☆</summary> 
 
   ★ I may not respond, sometimes I prefer not to type!
 
