@@ -1,7 +1,6 @@
 ## WIP!!
 
 <details>
-  <summary>☆About Me!☆</summary>
-
-The hidden content goes here. You can add **bold** text, *italics*, lists, code blocks, and other Markdown formatting here.
+  <summary>☆Aliases☆</summary>
+★I go by Zephyr but ya can also refer to me as Zellie!★
 </details>
