@@ -48,4 +48,37 @@
 
 </details>
 
+  <summary>☆Fandoms☆</summary> 
+
+  ★ Rise of The Teenage Mutant Ninja Turtles
+
+  ★ Wings of Fire
+
+  ★ Five Nights at Freddy's
+
+  ★ Unwind
+
+  ★ Magnus Chase
+
+  ★ Stranger Things
+
+  ★ The Amazing Digital Circus
+
+  ★ Murder Drones
+
+  ★ My Little Pony
+
+  ★ Little Nightmares
+
+  ★ Poppy Playtime
+
+  ★ Sweet Tooth
+
+  ★ Wobbledogs
+
+  ★ Whatever Marcus The Worm/Sardine's Fandom Is
+
+  **This is a W.I.P Segment, I most likely forgot some.**
+
+</details>
 
