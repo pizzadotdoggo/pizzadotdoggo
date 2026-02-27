@@ -24,7 +24,7 @@ Stalkers ↴
 
 ★ Also C+H if ya want
 
-★ If ya wanna friend me just ask! Because I have my friend reqs disabled. (I won't friend ppl I just met/haven't spent time with though!!)
+★ If ya wanna friend me just ask! Because I have my friend reqs disabled. (I won't friend ppl I haven't spent time with though!!)
 
 ★ Jack Stauber Addict 
 
