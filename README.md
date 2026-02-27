@@ -22,9 +22,9 @@ Stalkers ↴
 
  ★ If I don't respond/INT on Ponytown I am most likely offtab feel free to W2I **unless** stated otherwise or if another statement in my ponies name is contrary!
 
-★ ALSO I LOVE CUDDLES ON PT, So like- Please I beg you
+★ Also C+H if ya want (AS IN PLEASE DO-)
 
-★ If ya wanna friend me on PT just ask! Because I have my friend reqs disabled. (I won't friend ppl I just met/haven't spent time with though!!)
+★ If ya wanna friend me on just ask! Because I have my friend reqs disabled. (I won't friend ppl I just met/haven't spent time with though!!)
 
 </details>
 
