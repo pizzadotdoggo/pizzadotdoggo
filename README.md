@@ -49,7 +49,7 @@
 </details>
 
  
- <summary>☆Important!!☆</summary> 
+<summary>☆Aliases☆</summary>  
 
   ★ I may not respond, but I will INT! Sometimes I prefer not to type!
 
