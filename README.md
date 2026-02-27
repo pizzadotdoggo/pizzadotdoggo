@@ -49,8 +49,8 @@
 
 </details>
 
-    
-  <summary>☆Important!!☆</summary> 
+
+     <summary>☆Important!!☆</summary> 
 
   ★ I may not respond, but I will INT! Sometimes I prefer not to type!
 
@@ -61,4 +61,5 @@
 ★ DNC in my ponies names mean 'do not copy' so please don't, I work very hard on them ^^
 
 </details>
+
 
