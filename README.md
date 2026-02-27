@@ -18,6 +18,8 @@
 
 ★ ALSO I LOVE CUDDLES ON PT, So like- Please I beg you
 
+★ If ya wanna friend me on PT just ask! Because I have my friend reqs disabled. (I won't friend ppl I just met/haven't spent time with though!!)
+
 </details>
 
 ⋆｡˚ ☁︎ ˚｡⋆｡˚☽˚｡⋆
