@@ -1,6 +1,6 @@
 ## WIP!!
 
-*Words like ☆This☆ are clickable!*
+<sub>*Words like ☆This☆ are clickable!*
 
 <details>
   <summary>☆General☆</summary> 
