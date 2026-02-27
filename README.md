@@ -9,6 +9,9 @@
   ★ Playing Ponytown 24/7  
   
  ★ If you see me sitting with someone on pony town, It is most likely one of my close friends ^^ 
+ 
+ ★ I **love** stars!!
+
 </details>
 
 ⋆｡˚ ☁︎ ˚｡⋆｡˚☽˚｡⋆
