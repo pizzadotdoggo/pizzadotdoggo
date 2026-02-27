@@ -64,6 +64,8 @@ Stalkers ↴
 
   <summary>☆Char's I'm Associated With on PT☆</summary> 
 
+★ Pupper (OC) *recent*
+
 ★ Aspen Buttons (OC) *recent*
 
 ★ Farrah (OC) *recent*
