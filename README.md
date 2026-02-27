@@ -123,7 +123,7 @@ Stalkers ↴
 
   ★ I may not respond, but I will INT! Sometimes I prefer not to type!
 
-  ★ I am neurodivergent and sometimes don't understand social cues or just stuff in general, please me patient with me!
+  ★ I am neurodivergent and sometimes don't understand social cues or just stuff in general, please me patient with me! Also due to this tone tags are apreciated!
 
  ★ I am a **minor** do **not** under **any** circumstances be weird towards me **please**
 
@@ -131,7 +131,7 @@ Stalkers ↴
 
 ★ I am Demiplatonic, Therefore it is more than likely that it will take me a while to warm up to people!!
 
-★ Apothisexual, **Anything** remotely sexual can and will make me uncomfortable and I might even block said person who is acting that way, it is best not to even make flirty jokes towards me anyways unless I am close to you, and **In a platonic manner**
+★ Apothisexual, **Anything** remotely sexual can and will make me uncomfortable and I might even block said person who is acting that way, it is best not to even make flirty jokes towards me anyways unless I am close to you, and said **In a platonic manner**
 </details>
 
 ⋆｡˚ ☁︎ ˚｡⋆｡˚☽˚｡⋆
