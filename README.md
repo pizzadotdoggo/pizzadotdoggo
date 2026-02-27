@@ -43,4 +43,9 @@
   ★ I am neurodivergent and sometimes don't understand social cues or just stuff in general, please me patient with me!
 
  ★ I am a **minor** do **not** under **any** circumstances be weird towards me **please**
+
+★ DNC in my ponies names mean 'do not copy' so please dont, I work very hard on them ^^
+
 </details>
+
+
