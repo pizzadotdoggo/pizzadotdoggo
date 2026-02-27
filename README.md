@@ -1,5 +1,7 @@
 ## WIP!!
 
+*Words like ☆This☆ are clickable!*
+
 <details>
   <summary>☆General☆</summary> 
   ★ Playing Ponytown 24/7  
