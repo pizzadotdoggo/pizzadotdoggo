@@ -48,6 +48,8 @@
 
 ★ DNC in my ponies names mean 'do not copy' so please don't, I work very hard on them ^^
 
+★ I am Demiplatonic, Therefore it is more than likely that it will take me a while to warm up to people!!
+
 </details>
 
 ⋆｡˚ ☁︎ ˚｡⋆｡˚☽˚｡⋆
