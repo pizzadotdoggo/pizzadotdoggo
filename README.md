@@ -49,5 +49,18 @@
 
 </details>
 
+<details>
+  <summary>☆Fandoms☆</summary> 
+ 
+  ★ Playing Ponytown 24/7  
+  
+ ★ If you see me sitting with someone on pony town, It is most likely one of my close friends ^^ 
+ 
+ ★ I **love** stars!!
 
+ ★ If I don't respond/INT, I am most likely offtab feel free to W2I **unless** stated otherwise or if another statement in my ponies name is contrary!
+
+★ ALSO I LOVE CUDDLES ON PT, So like- Please I beg you
+
+</details>
 
