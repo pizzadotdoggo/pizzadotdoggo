@@ -28,6 +28,8 @@ Stalkers ↴
 
 ★ Jack Stauber Addict 
 
+★ My personality type is INTP!
+
 ★ I'm super friendly I promise-
 
 </details>
