@@ -100,7 +100,7 @@
 
  ★ Any Other harmful groups
 
- ★ I am chill with almost anyone really, I don't mind people with Neopronouns, Xenopronouns, or Therians, Furries, Fictkins, etc. I am basically alright as long as you aren't harming anyone or promoting anything harmful :D★
+ ☆I am chill with almost anyone really, I don't mind people with Neopronouns, Xenopronouns, or Therians, Furries, Fictkins, etc. I am basically alright as long as you aren't harming anyone or promoting anything harmful :D☆
 
 </details>
 
