@@ -1,5 +1,7 @@
 ## WIP!!
 
+https://views-counter.vercel.app/badge?pageId=pizzadotdoggo&leftColor=333333&rightColor=4d79ff&type=daily&label=Stalkers&style=none
+
 <sub>*Words like ☆This☆ are clickable!*
 
 
