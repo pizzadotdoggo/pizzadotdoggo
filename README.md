@@ -2,6 +2,7 @@
 
 <sub>*Words like ☆This☆ are clickable!*
 
+
 <details>
   <summary>☆General☆</summary> 
  
@@ -14,6 +15,7 @@
 
 <details>
   <summary>☆Aliases☆</summary> 
+
  
   ★ Zephyr  
   
@@ -27,6 +29,7 @@
 <details>
   
   <summary>☆Important!!☆</summary> 
+
  
   ★ I may not respond, sometimes I prefer not to type!
 
