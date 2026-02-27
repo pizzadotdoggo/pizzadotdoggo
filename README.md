@@ -124,6 +124,10 @@
  
  ★ Racists
 
+ ★ Homophobes
+
+ ★ Transphobes
+
  ★ Anyone 18+ or NSFW
 
  ★ Any Other harmful groups
