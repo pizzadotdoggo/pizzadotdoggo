@@ -123,7 +123,7 @@ Stalkers ↴
 
   ★ I may not respond, but I will INT! Sometimes I prefer not to type!
 
-  ★ I am neurodivergent and sometimes don't understand social cues or just stuff in general, please me patient with me! Also due to this tone tags are apreciated!
+  ★ I am neurodivergent and sometimes don't understand social cues or just stuff in general, please be patient with me! Also due to this tone tags are apreciated!
 
  ★ I am a **minor** do **not** under **any** circumstances be weird towards me **please**
 
