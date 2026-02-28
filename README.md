@@ -110,6 +110,8 @@ Stalkers ↴
   ★ Pokemon Horizons
 
   ★ How to Train Your Dragon
+
+ ★ Kitbull
   
   ★ Whatever Marcus The Worm/Sardine's Fandom Is
 
@@ -165,3 +167,4 @@ Stalkers ↴
 ˚　　　　✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 . ★ 
 　　　.   　　˚　　 　　*　　 　　✦　　　.　　.　　　✦　˚ 　　　　 ˚　.˚　　　　✦　　　.　　. 　 ˚　.˚　　　　✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 . ★ 
 　　　.   　　˚　　 　　*　　 　　✦　
+https://tenor.com/8KfFPLdiOW.gif
