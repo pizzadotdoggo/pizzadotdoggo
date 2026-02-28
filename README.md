@@ -167,4 +167,4 @@ Stalkers ↴
 ˚　　　　✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 . ★ 
 　　　.   　　˚　　 　　*　　 　　✦　　　.　　.　　　✦　˚ 　　　　 ˚　.˚　　　　✦　　　.　　. 　 ˚　.˚　　　　✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 . ★ 
 　　　.   　　˚　　 　　*　　 　　✦　
-https://tenor.com/8KfFPLdiOW.gif
+
