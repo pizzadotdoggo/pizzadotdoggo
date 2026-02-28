@@ -168,4 +168,3 @@ Stalkers ↴
 　　　.   　　˚　　 　　*　　 　　✦　　　.　　.　　　✦　˚ 　　　　 ˚　.˚　　　　✦　　　.　　. 　 ˚　.˚　　　　✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 . ★ 
 　　　.   　　˚　　 　　*　　 　　✦　
 
-https://www.tumblr.com/thegalaxyrailways/182950605819/kitbull-2019-dir-rosana-sullivan?source=share
