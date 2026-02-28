@@ -168,4 +168,4 @@ Stalkers ↴
 　　　.   　　˚　　 　　*　　 　　✦　　　.　　.　　　✦　˚ 　　　　 ˚　.˚　　　　✦　　　.　　. 　 ˚　.˚　　　　✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 . ★ 
 　　　.   　　˚　　 　　*　　 　　✦　
 
-<div class="tumblr-post" data-href="https://embed.tumblr.com/embed/post/t:_M0xWgDNi5tBYUTGfr69bQ/182950605819/v2" data-did="15f64ef6ba2b2ecb425fa95864c32147e9bd2254"  ><a href="https://www.tumblr.com/thegalaxyrailways/182950605819/kitbull-2019-dir-rosana-sullivan">https://www.tumblr.com/thegalaxyrailways/182950605819/kitbull-2019-dir-rosana-sullivan</a></div><script async src="https://assets.tumblr.com/post.js?_v=8b39daeb280af0fb41fe0827257f89f6"></script>
+https://www.tumblr.com/thegalaxyrailways/182950605819/kitbull-2019-dir-rosana-sullivan?source=share
