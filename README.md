@@ -168,4 +168,4 @@ Stalkers ↴
 　　　.   　　˚　　 　　*　　 　　✦　　　.　　.　　　✦　˚ 　　　　 ˚　.˚　　　　✦　　　.　　. 　 ˚　.˚　　　　✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 . ★ 
 　　　.   　　˚　　 　　*　　 　　✦　
 
-https://tenor.com/view/kitbull-cat-pixar-playing-big-eyes-gif-820104843566122328
+<div class="tenor-gif-embed" data-postid="820104843566122328" data-share-method="host" data-aspect-ratio="1.76596" data-width="100%"><a href="https://tenor.com/view/kitbull-cat-pixar-playing-big-eyes-gif-820104843566122328">Kitbull Cat GIF</a>from <a href="https://tenor.com/search/kitbull-gifs">Kitbull GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
