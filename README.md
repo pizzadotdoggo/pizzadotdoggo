@@ -155,7 +155,7 @@ Stalkers ↴
 
  ★ Transphobes
 
- ★ Anyone 18+ or NSFW
+ ★ Anyone NSFW (Anyone 18 and over IWEC and please make your age known)
 
  ★ Any Other harmful groups
 
