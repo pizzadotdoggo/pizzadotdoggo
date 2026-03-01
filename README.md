@@ -129,6 +129,8 @@ Stalkers ↴
 
   ★ Anyone 18 and over, please IWEC and please make your age known!!
 
+  ★ Please don't take inspo without asking
+
   ★ I may not respond, but I will INT! Sometimes I prefer not to type!
 
   ★ I am neurodivergent and sometimes don't understand social cues or just stuff in general, please be patient with me! Also due to this tone tags are apreciated!
