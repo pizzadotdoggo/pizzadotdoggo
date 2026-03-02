@@ -129,6 +129,8 @@ Stalkers ↴
 
   ★ Anyone 18 and over, please IWEC and please make your age known!!
 
+  ★ Please don't invite me to parties! I am content with the party I am in and do not wish to leave ^^
+
   ★ Please don't take inspo without asking
 
   ★ I may not respond, but I will INT! Sometimes I prefer not to type!
