@@ -129,6 +129,8 @@ Stalkers ↴
 
   ★ Anyone 18 and over, please IWEC and please make your age known!!
 
+  ★ I am NOT a proshipper BUT if someone is, I treat them with respect just as any other person (Although I don't agree with some proshipping, my friends and other people might, and that is their business. I will not discriminate them for that)
+
   ★ Please don't invite me to parties! I am content with the party I am in and do not wish to leave ^^
 
   ★ Please don't take inspo without asking
