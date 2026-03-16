@@ -40,6 +40,8 @@ Stalkers ↴
   <summary>☆Aliases☆</summary> 
  
   ★ Zephyr  
+
+  ★ Gatsby
   
   ★ Zellie  
 
