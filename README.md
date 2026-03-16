@@ -115,8 +115,10 @@ Stalkers ↴
 
   ★ How to Train Your Dragon
 
- ★ Kitbull
-  
+  ★ Kitbull
+
+  ★ Blood Money
+
   ★ Whatever Marcus The Worm/Sardine's Fandom Is
 
   **This is a W.I.P Segment, I most likely forgot some.**
