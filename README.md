@@ -135,8 +135,6 @@ Stalkers ↴
 
   ★ I am NOT a proshipper BUT if someone is, I treat them with respect just as any other person (Although I don't agree with some proshipping, my friends and other people might, and that is their business. I will not discriminate them for that)
 
-  ★ Please don't invite me to parties! I am content with the party I am in and do not wish to leave ^^
-
   ★ Please don't take inspo without asking
 
   ★ I may not respond, but I will INT! Sometimes I prefer not to type!
@@ -144,8 +142,6 @@ Stalkers ↴
   ★ I am neurodivergent and sometimes don't understand social cues or just stuff in general, please be patient with me! Also due to this tone tags are apreciated!
 
  ★ I am a **minor** do **not** under **any** circumstances be weird towards me **please**
-
-★ DNC in my ponies names mean 'do not copy' so please don't, I work very hard on them ^^
 
 ★ I am Demiplatonic, Therefore it is more than likely that it will take me a while to warm up to people!!
 
