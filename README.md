@@ -121,6 +121,12 @@ Stalkers ↴
 
   ★ Warrior Cats
 
+  ★ Sally Face
+
+  ★ The Coffin of Andy and LeyLey
+
+  ★ Psycho Cuties
+
   ★ Whatever Marcus The Worm/Sardine's Fandom Is
 
   **This is a W.I.P Segment, I most likely forgot some.**
