@@ -18,11 +18,11 @@ Stalkers ↴
 
 ★ If ya see me sitting around you are welcome to say hi ^^
   
-★ If you see me sitting with someone on pony town, It is most likely one of my close friends ^^ 
+★ If you see me sitting with someone, It is most likely one of my close friends ^^ 
  
 ★ I **love** stars!!
 
-★ If I don't respond/INT on Ponytown I am most likely offtab feel free to W2I **unless** stated otherwise or if another statement in my ponies name is contrary!
+★ If I don't respond/INT I am most likely offtab feel free to W2I **unless** stated otherwise or if another statement in my ponies name is contrary!
 
 ★ Also C+H if ya want
 
