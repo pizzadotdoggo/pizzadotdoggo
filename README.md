@@ -167,7 +167,7 @@ Stalkers ↴
 
   ★ Helluva Boss
 
-  ★ South Park
+  ★ South Park (Sorta-)
 
   ★ Dinosaur King
 
