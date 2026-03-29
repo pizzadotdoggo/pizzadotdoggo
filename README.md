@@ -137,6 +137,10 @@ Stalkers ↴
 
   ★ Gravity falls
 
+  ★ Epic the Musical
+
+  ★ Hamilton
+
   ★ Whatever Marcus The Worm/Sardine's Fandom Is
 
   **This is a W.I.P Segment, I most likely forgot some.**
