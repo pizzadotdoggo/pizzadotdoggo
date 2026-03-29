@@ -145,6 +145,8 @@ Stalkers ↴
 
   ★ Happy's Humble Burger Farm
 
+  ★ Hoppers
+
   **This is a W.I.P Segment, I most likely forgot some.**
 
 </details>
