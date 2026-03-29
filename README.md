@@ -153,6 +153,8 @@ Stalkers ↴
 
   ★ Iron Man
 
+  ★ The Last Dragon Chronicles
+
   **This is a W.I.P Segment, I most likely forgot some.**
 
 </details>
