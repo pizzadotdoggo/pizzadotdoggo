@@ -137,11 +137,11 @@ Stalkers ↴
 
   ★ Gravity falls
 
-  ★ Epic the Musical
+  ★ Epic The Musical
 
   ★ Hamilton
 
-  ★ Whatever Marcus The Worm/Sardine's Fandom Is
+  ★ Marcus The Sardine
 
   **This is a W.I.P Segment, I most likely forgot some.**
 
