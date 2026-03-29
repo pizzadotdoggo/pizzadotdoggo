@@ -167,6 +167,12 @@ Stalkers ↴
 
   ★ Helluva Boss
 
+  ★ South Park
+
+  ★ Dinosaur King
+
+  ★ Yo-kai Watch
+
   **This is a W.I.P Segment, I most likely forgot some.**
 
 </details>
