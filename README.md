@@ -157,6 +157,16 @@ Stalkers ↴
 
   ★ The Spiderwick Chronicles
 
+  ★ Encanto
+
+  ★ Zombies
+
+  ★ Decendents
+
+  ★ Hazbin Hotel
+
+  ★ Helluva Boss
+
   **This is a W.I.P Segment, I most likely forgot some.**
 
 </details>
