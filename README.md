@@ -173,6 +173,8 @@ Stalkers ↴
 
   ★ Yo-kai Watch
 
+  ★ Mouthwashing
+
   **This is a W.I.P Segment, I most likely forgot some.**
 
 </details>
