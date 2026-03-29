@@ -143,6 +143,8 @@ Stalkers ↴
 
   ★ Marcus The Sardine
 
+  ★ Happy's Humble Burger Farm
+
   **This is a W.I.P Segment, I most likely forgot some.**
 
 </details>
