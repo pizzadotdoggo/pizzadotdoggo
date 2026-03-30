@@ -175,6 +175,8 @@ Stalkers ↴
 
   ★ Mouthwashing
 
+  ★ Cookie Run Kingdom
+
   **This is a W.I.P Segment, I most likely forgot some.**
 
 </details>
