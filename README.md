@@ -177,6 +177,10 @@ Stalkers ↴
 
   ★ Cookie Run Kingdom
 
+  ★ Still Wakes The Deep
+
+  ★ Alan Wake
+
   **This is a W.I.P Segment, I most likely forgot some.**
 
 </details>
