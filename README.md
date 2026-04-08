@@ -195,7 +195,7 @@ Stalkers ↴
 
   ★ I am NOT a proshipper BUT if someone is, I treat them with respect just as any other person (Although I don't agree with some proshipping, my friends and other people might, and that is their business. I will not discriminate them for that)
 
-  ★ Please don't take inspo without asking
+  ★ Please don't take inspo without asking And absolutely **NO** copying or heavy inspo
 
   ★ I may not respond, but I will INT! Sometimes I prefer not to type!
 
