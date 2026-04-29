@@ -54,7 +54,7 @@ Stalkers ↴
 
   <summary>☆Char's I'm Associated With on PT☆</summary> 
 
-★ Gay/Vincian Pony *recent*
+★ Gay/Vincian Pony (Pride OC) *recent*
 
 ★ Juniper (OC) *recent*
 
