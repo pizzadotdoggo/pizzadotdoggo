@@ -185,6 +185,10 @@ Stalkers ↴
 
   ★ Percy Jackson
 
+  ★ Cookie Run Kingdom
+
+  ★ Tomodachi Life
+
   **This is a W.I.P Segment, I most likely forgot some.**
 
 </details>
