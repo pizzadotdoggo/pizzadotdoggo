@@ -72,6 +72,8 @@ Stalkers ↴
 
 ★ Opila (GoBB) *old*
 
+Also if ya wanna know where to find me I am usually at Woke World™️ (the sign under the protree !!) Aka the official pride area >:D
+
 </details>
 
 ⋆｡˚ ☁︎ ˚｡⋆｡˚☽˚｡⋆
