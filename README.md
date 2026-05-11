@@ -233,9 +233,24 @@ Also if ya wanna know where to find me I am usually at Woke World™️ (the sig
 
  ★ Anyone NSFW
 
+ ★ Harassers
+
  ★ Any Other harmful groups
 
  ☆I am chill with almost anyone really, I don't mind people with Neopronouns, Xenopronouns, or Therians, Furries, Fictkins, etc. I am basically alright as long as you aren't harming anyone or promoting any real world harm :D☆
+
+</details>
+
+⋆｡˚ ☁︎ ˚｡⋆｡˚☽˚｡⋆
+
+<details>
+  <summary>☆BYI☆</summary> 
+ 
+  ★ I block freely. (As in if you harass me, etc.)
+
+  ★ Follow your own DNI. Don't harass me for smth you don't like.
+
+  ★ As I said before, I am a **minor**.
 
 </details>
 
