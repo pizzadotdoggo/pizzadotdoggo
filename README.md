@@ -246,7 +246,7 @@ Also if ya wanna know where to find me I am usually at Woke World™️ (the sig
 <details>
   <summary>☆BYI☆</summary> 
  
-  ★ I block freely. (As in if you harass me, etc.)
+  ★ I block freely. (As in if you harass me, copy, etc.)
 
   ★ Follow your own DNI. Don't harass me for smth you don't like.
 
