@@ -199,7 +199,12 @@ Also if ya wanna know where to find me I am usually at Woke World™️ (the sig
 
 <details>
 
-  <summary>☆Important!!☆</summary> 
+  <summary>☆BYI!!☆</summary> 
+    
+  ★ I block freely. (As in if you harass me, copy, etc.)
+
+  ★ Follow your own DNI. Don't harass me for smth you don't like.
+
 
   ★ Anyone 18 and over, please IWEC and please make your age known!!
 
@@ -207,7 +212,7 @@ Also if ya wanna know where to find me I am usually at Woke World™️ (the sig
 
   ★ Please don't take inspo without asking And absolutely **NO** copying or heavy inspo
 
-  ★ I may not respond, but I will INT! Sometimes I prefer not to type!
+  ★ I may not respond, but I will INT! Sometimes I prefer not to type! (Unless I am offtab, if I am like I said before, feel free to W2I unless stated otherwise)
 
   ★ I am neurodivergent and sometimes don't understand social cues or just stuff in general, please be patient with me! Also due to this tone tags are apreciated!
 
@@ -240,21 +245,6 @@ Also if ya wanna know where to find me I am usually at Woke World™️ (the sig
  ☆I am chill with almost anyone really, I don't mind people with Neopronouns, Xenopronouns, or Therians, Furries, Fictkins, etc. I am basically alright as long as you aren't harming anyone or promoting any real world harm :D☆
 
 </details>
-
-⋆｡˚ ☁︎ ˚｡⋆｡˚☽˚｡⋆
-
-<details>
-  <summary>☆BYI☆</summary> 
- 
-  ★ I block freely. (As in if you harass me, copy, etc.)
-
-  ★ Follow your own DNI. Don't harass me for smth you don't like.
-
-  ★ As I said before, I am a **minor**.
-
-</details>
-
-⋆｡˚ ☁︎ ˚｡⋆｡˚☽˚｡⋆
 
 ## Thanks For reading!!
 ˚　　　　✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 . ★ 
