@@ -203,8 +203,7 @@ Also if ya wanna know where to find me I am usually at Woke World™️ (the sig
     
   ★ I block freely. (As in if you harass me, copy, etc.)
 
-  ★ Follow your own DNI. Don't harass me for smth you don't like.
-
+  ★ Follow your own DNI. Don't harass me for smth you don't like. ALso do not go around telling me certain identities aren't valid. That will result in a block and you will be ignored. I don't need you policing me or my friends around telling us how to label ourselves.
 
   ★ Anyone 18 and over, please IWEC and please make your age known!!
 
@@ -216,9 +215,6 @@ Also if ya wanna know where to find me I am usually at Woke World™️ (the sig
 
   ★ I am neurodivergent and sometimes don't understand social cues or just stuff in general, please be patient with me! Also due to this tone tags are apreciated!
 
- ★ I am a **minor** do **not** under **any** circumstances be weird towards me **please**.
-
-★ Apothisexual, **Anything** remotely sexual coming from someone I don't know even in a joking manner can and will make me uncomfortable and I might even block said person who is acting that way, it is best not to even make flirty jokes towards me anyways unless I am close to you, and said **In a platonic manner**.
 </details>
 
 ⋆｡˚ ☁︎ ˚｡⋆｡˚☽˚｡⋆
