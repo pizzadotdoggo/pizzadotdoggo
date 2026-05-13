@@ -236,7 +236,7 @@ Also if ya wanna know where to find me I am usually at Woke World™️ (the sig
 
  ★ Harassers
 
- ★Anti-Alterhumans & Furries
+ ★ Anti-Alterhumans & Furries
 
  ★ Any Other harmful groups
 
