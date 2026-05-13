@@ -222,6 +222,8 @@ Also if ya wanna know where to find me I am usually at Woke World™️ (the sig
 <details>
   <summary>☆DNI☆</summary> 
  
+ ★ Anyone above 20 and under 12
+ 
  ★ Pedophiles
 
  ★ Zoophiles
@@ -232,9 +234,9 @@ Also if ya wanna know where to find me I am usually at Woke World™️ (the sig
 
  ★ Transphobes
 
- ★ Anyone NSFW
-
  ★ Harassers
+
+ ★Anti-Alterhumans/Furries
 
  ★ Any Other harmful groups
 
