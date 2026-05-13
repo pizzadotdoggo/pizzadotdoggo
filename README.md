@@ -222,7 +222,7 @@ Also if ya wanna know where to find me I am usually at Woke World™️ (the sig
 <details>
   <summary>☆DNI☆</summary> 
  
- ★ Anyone above 20 and under 12
+ ★ Anyone above 20 or under 12
  
  ★ Pedophiles
 
