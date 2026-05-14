@@ -203,7 +203,7 @@ Also if ya wanna know where to find me I am usually at Woke World™️ (the sig
     
   ★ I block freely. (As in if you harass me, copy, etc.)
 
-  ★ Follow your own DNI. Don't harass me for smth you don't like. Also do not go around telling me certain identities aren't valid. That will result in a block and you will be ignored. I don't need you policing me or my friends around telling us how to label ourselves.
+  ★ Follow your own DNI. Don't harass me for smth you don't like. Also do not go around telling me certain identities aren't valid. That will result in a block or hide and you will be ignored. I don't need you policing me or my friends around telling us how to label ourselves.
 
   ★ Anyone 18 and over, please IWEC and please make your age known!!
 
