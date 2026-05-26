@@ -207,7 +207,7 @@ Also if ya wanna know where to find me I am usually at Woke World™️ (the sig
 
   ★ Anyone 18 and over, please IWEC and please make your age known!!
 
-  ★ I am NOT a proshipper BUT if someone is, I treat them with respect just as any other person (Although I don't agree with some proshipping, my friends and other people might, and that is their business. I will not discriminate them for that)
+  ★ I am NOT a proshipper BUT if someone is, I treat them with respect just as any other person (Although I am uncomfortable with some proships, my friends and other people might not be, and that is their business. I will not discriminate them for that)
 
   ★ Please don't take inspo without asking And absolutely **NO** copying or heavy inspo
 
