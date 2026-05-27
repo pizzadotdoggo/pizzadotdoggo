@@ -51,6 +51,24 @@ Stalkers ↴
 ⋆｡˚ ☁︎ ˚｡⋆｡˚☽˚｡⋆
 
 <details>
+<summary>☆Friends !!☆</summary> 
+
+  [SqueakySpoons](https://github.com/SqueakySpoons)
+  
+  [Overrated-reality](https://github.com/Overrated-reality)
+
+  [stupid-saint](https://github.com/stupid-saint)
+
+  [ryangoslingmoney](https://github.com/ryangoslingmoney)
+
+  [WalkingTW](https://github.com/WalkingTW)
+
+  
+</details>
+
+⋆｡˚ ☁︎ ˚｡⋆｡˚☽˚｡⋆
+
+<details>
 
   <summary>☆Char's I'm Associated With on PT☆</summary> 
 
