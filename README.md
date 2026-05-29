@@ -76,6 +76,8 @@ Stalkers ↴
 
   <summary>☆Char's I'm Associated With on PT☆</summary> 
 
+★ Neoboy Pony (Pride OC) *recent*
+
 ★ Gay/Vincian Pony (Pride OC) *recent*
 
 ★ Juniper (OC) *recent*
