@@ -37,7 +37,7 @@ Stalkers ↴
  
   ★ Zephyr  
 
-  ★ Gatsby
+  ★ Gatsbyy
   
   ★ Zellie  
 
@@ -45,7 +45,7 @@ Stalkers ↴
 ☆I have others, these are just the ones **anyone** can refer to me as!☆
 
 
-  ☆Zellie is moreso a nickname but Gatsby and Zephyr arent, I like to be called Gatsby and Zephyr interchangeably but if ya don't do that it's alright!☆
+  ☆Zellie is moreso a nickname but Gatsbyy and Zephyr arent, I like to be called Gatsbyy and Zephyr interchangeably but if ya don't do that it's alright!☆
 </details>
 
 ⋆｡˚ ☁︎ ˚｡⋆｡˚☽˚｡⋆
