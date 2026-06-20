@@ -57,7 +57,7 @@ Stalkers ↴
   
   [Overrated-reality](https://github.com/Overrated-reality)
 
-  [stupid-saint](https://github.com/stupid-saint)
+  [beetle-brain](https://github.com/beetle-brain)
 
   [ryangoslingmoney](https://github.com/ryangoslingmoney)
 
