@@ -59,8 +59,6 @@ Stalkers ↴
 
   [beetle-brain](https://github.com/beetle-brain)
 
-  [ryangoslingmoney](https://github.com/ryangoslingmoney)
-
   [WalkingTW](https://github.com/WalkingTW)
 
   [SillyPuppyBoy](https://github.com/SillyPuppyBoy)
