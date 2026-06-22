@@ -70,35 +70,6 @@ Stalkers ↴
   
 </details>
 
-⋆｡˚ ☁︎ ˚｡⋆｡˚☽˚｡⋆
-
-<details>
-
-  <summary>☆Char's I'm Associated With on PT☆</summary> 
-
-★ Neoboy Pony (Pride OC) *recent*
-
-★ Gay/Vincian Pony (Pride OC) *recent*
-
-★ Juniper (OC) *recent*
-
-★ Pupper (OC) *recent*
-
-★ Aspen Buttons (OC) *recent*
-
-★ Farrah (OC) *recent*
-
-★ Cream Puff (OC) *recent*
-
-★ Chances (OC) *old*
-
-★ Yarnaby (PPT) *old*
-
-★ Opila (GoBB) *old*
-
-Also if ya wanna know where to find me I am usually at Woke World™️ (the sign under the protree !!) Aka the official pride area >:D
-
-</details>
 
 ⋆｡˚ ☁︎ ˚｡⋆｡˚☽˚｡⋆
 
