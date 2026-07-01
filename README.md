@@ -39,7 +39,7 @@ Stalkers ↴
 
   ★ Gatsbyy
   
-  ★ Zellie  
+  ★ Nimbus (Sonas name :3)
 
 
 ☆I have others, these are just the ones **anyone** can refer to me as!☆
