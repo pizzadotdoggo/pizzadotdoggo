@@ -232,7 +232,9 @@ Stalkers ↴
 
  ★ Anti-Alterhumans
 
- ★ Xenosatanists/Radqueers
+ ★ Radqueers
+
+ ★ Xenosatanists
 
  ★ Any Other harmful groups
 
