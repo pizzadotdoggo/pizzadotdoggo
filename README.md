@@ -238,7 +238,7 @@ Stalkers ↴
 
  ★ Any Other harmful groups
 
- ★ Darkshippers are on thin ice !!  Unless I already know u ok? And please refrain from talking abt those themes in general. I get uncomfy VERY easy.
+ ★★ Darkshippers are on thin ice !!  Unless I already know u ok? And please refrain from talking abt those themes in general. I get uncomfy VERY easy. ★★
 
  ☆I am chill with almost anyone really, I don't mind people with Neopronouns, Xenopronouns, or Therians, Furries, Fictkins, etc. I am basically alright as long as you aren't harming anyone or promoting any real world harm :D☆
 
