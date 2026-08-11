@@ -157,12 +157,6 @@ Stalkers ↴
 
   ★ Decendents
 
-  ★ Hazbin Hotel
-
-  ★ Helluva Boss
-
-  ★ South Park (Sorta-)
-
   ★ Dinosaur King
 
   ★ Yo-kai Watch
