@@ -121,10 +121,6 @@ Stalkers ↴
 
   ★ Sally Face
 
-  ★ The Coffin of Andy and LeyLey
-
-  ★ Psycho Cuties
-
   ★ Trollhunters
 
   ★ Pup Academy
