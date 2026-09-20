@@ -38,9 +38,6 @@ Stalkers ↴
   ★ Zephyr  
 
   ★ Gatsbyy
-  
-
-☆I have others, these are just the ones **anyone** can refer to me as!☆
 
 
   ☆I like to be called Gatsbyy and Zephyr interchangeably but if ya don't do that it's alright!☆
